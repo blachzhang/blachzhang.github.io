@@ -2,7 +2,7 @@
 
 ## email 
   706463899@qq.com 
-  dml706463899@gmail.com
+  du.m20@physics.msu.ru
   
 ## student
   Department of Physics, Moscow State University
