@@ -1,7 +1,6 @@
 ## blachzhang
 
 ## email 
-  706463899@qq.com 
   du.m20@physics.msu.ru
   
 ## student
